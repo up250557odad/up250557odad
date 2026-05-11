@@ -5,7 +5,7 @@
  **Soy Angel**
  **Del Meritito Aguascalientes 🤘**
  ***
- ![Arriba el Cruz Azul](https://www.pinterest.com/pin/806566614511996524/)
+ 
 
 <!--
 **up250557odad/up250557odad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
